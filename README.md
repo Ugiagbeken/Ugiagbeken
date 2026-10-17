@@ -1,4 +1,4 @@
-### Hi there, I'm Samuel 👋
+### Hi there, I'm Ken 👋
 
 **Aspiring Technical Writer | Documentation Creator | GitHub Chef 🍲**
 
